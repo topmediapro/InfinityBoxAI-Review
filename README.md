@@ -1,4 +1,4 @@
-# InfinityBoxAI-Review
+# InfinityBoxAI-Review and Technology
 **InfinityBoxAI Platform the World's First App Creates Your Very Own AI Platforms Like Jasper AI, MidJourney, & ChatGPT & Charges People Monthly In Recurring PayPal Payments...
 **
 
